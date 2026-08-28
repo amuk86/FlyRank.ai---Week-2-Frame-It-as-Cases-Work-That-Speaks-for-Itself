@@ -33,7 +33,7 @@ I'm an Information Systems student building practical tools at the intersection 
 
 ## Contact / CTA
 
-Want to see how this agent evolves, or talk through a project? Reach out — [your email] · [your LinkedIn] · [your GitHub]
+Want to see how this agent evolves, or talk through a project? Reach out — amukelani.mabunda16@gmail.com ·(https://github.com/amuk86)
 
 ---
 
